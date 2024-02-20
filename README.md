@@ -12,3 +12,13 @@
 ![will_lawn_mower_fit_in_back_of_truck](https://github.com/DarkEvamSar/virus/assets/160559076/839e8057-0c28-4047-93b9-3c02545b43cf)
 ![light-4508449_1920](https://github.com/DarkEvamSar/virus/assets/160559076/57329a25-8bdb-4324-b95f-cedc45512b67)
 ![download-2](https://github.com/DarkEvamSar/virus/assets/160559076/40e2ac66-7fc5-48a1-964b-02ced7eea872)
+
+th
+  th
+    chemistry io234n io2p oinn ip2n ipo2p ino inpo2 npio2n 
+
+
+    chemistry rate 
+                  th
+                    th
+                      th  io234n i in2opnp io2n ipon ip2n pi2 npi io2 n
