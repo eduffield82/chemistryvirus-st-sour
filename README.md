@@ -1,3 +1,8 @@
+chemistry rate 
+              th
+                th
+                  th  io234n i in2opnp io2n ipon ip2n pi2 npi io2 n
+
 ![0bb87f018af6d280ca9ec3f9387a01cd](https://github.com/DarkEvamSar/virus/assets/160559076/1b522c05-c6eb-4f37-9720-96836f354543)
 ![Unknown-1](https://github.com/DarkEvamSar/virus/assets/160559076/cf16854b-b651-46c7-bfad-a92772bcda08)
 <img width="916" alt="Screenshot 2024-02-11 at 6 43 43 PM" src="https://github.com/DarkEvamSar/virus/assets/160559076/6e19b7d0-1f5e-44ca-97aa-de180f70461e">
